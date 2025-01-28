@@ -58,4 +58,9 @@
 
 ![image](https://github.com/user-attachments/assets/af6e582f-9e0d-47ea-9109-8735543ffd1c)
 
+<strong>Passo 03</strong>
+
+![image](https://github.com/user-attachments/assets/b8368511-f558-4352-b1fe-616db5682e2d)
+
+
 <hr>
